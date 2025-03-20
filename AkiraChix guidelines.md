@@ -1,0 +1,20 @@
+**KEY POINTS EVERYONE SHOULD ADHERE TO AT AKIRACHIX**
+
+1. No form of abuse is to be tolerated:  
+   If anyone is found abusing anyone be it a student or a staff member, in any way; physical, mental, psychological or emotional they will face the consequences of their actions. This may include expulsion or termination depending on the individual.  
+     
+2. Everyone has a voice :   
+    Incase of abuse from anyone within the school premises, we are              encouraged to report it to the safety officer for action to be taken.  
+     
+3. We should take care of our health:  
+    Whenever we find ourselves feeling sick or unwell, we are required to talk to someone who can help us to prevent getting more sick. We are also required to eat all the meals provided.  
+     
+4. Be mindful of AkiraChix property :    
+   We should take care of the facilities given to us by the school as is our responsibility to keep them in good shape.  
+     
+5. We should respect one another:   
+   We should show respect and not treat people badly  
+     
+     
+   Reference; [https://codehive2025.slack.com/files/U08B9FMCKTP/F08GJ6NL95G/akirachix\_safeguarding\_policy.pdf?origin\_team=T08BR1M9D6V\&origin\_channel=C08GH64N0FJ](https://codehive2025.slack.com/files/U08B9FMCKTP/F08GJ6NL95G/akirachix_safeguarding_policy.pdf?origin_team=T08BR1M9D6V&origin_channel=C08GH64N0FJ)  
+   
